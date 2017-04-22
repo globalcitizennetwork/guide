@@ -1,1 +1,1 @@
-Xin chào các bạn
+Under development for update infor please visit http://globalcitizens.network
